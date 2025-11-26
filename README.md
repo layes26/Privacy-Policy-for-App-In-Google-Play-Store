@@ -1,1 +1,0 @@
-# Privacy-Policy-for-App-In-Google-Play-Store
